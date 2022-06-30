@@ -1,4 +1,4 @@
-# Eduardo-Canedo<!
+# Eduardo-Canedo!
 
 - 🌱 Atualmente estou: aprendendo Colegio Costa e Silva
 - 🤔 Estou procurando: ajuda com Progamação
